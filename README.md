@@ -10,7 +10,7 @@
  ${\textsf{\color{#f40179}I am pseyechosis on most socials.}}$ <br>
    ${\textsf{\color{#f40179} if you can't find me, then I don't have it!}}$ <br>
    ${\textsf{\color{#f40179}my github is solely for pt. I have no coding prowess}}$ <br></p>
-   <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png" align="center" width="20%"></a>
+   <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"></a>
     <p align="center">  
    ${\textsf{\color{#f40179}doctrine or vincent ₊ he / it / hym}}$ <br>
    <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_6209.gif"></a>${\textsf{\color{#f40179}i am 18!! please be aware }}$ <br>
