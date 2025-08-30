@@ -19,7 +19,9 @@
   <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"></a>
     <p align="center">  
    ${\textsf{\color{#f40179}feel free to friend me or wtv. but i might be unpleasant}}$ <br>
+         <p align="center">  
    ${\textsf{\color{#f40179}no dni except if we're more than 2 years apart in age. sorry}}$ <br>
+              <p align="center">  
    ${\textsf{\color{#f40179}talk to me about roblox forsaken}}$<img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/pink/e43c2ad1.gif"></a> ${\textsf{\color{#f40179}specifically ichance,...}}$<br></p>
     <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"></a>
       <p align="center">  
@@ -30,4 +32,5 @@
    <br>  
     <br>  
      <br>  
+        <p align="center">  
 <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-ad09-gradientmap.pro2.png"/>
