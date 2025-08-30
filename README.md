@@ -3,7 +3,7 @@
 <img src="https://file.garden/Z7-3jqElunno9Cjt/ezgif-1d9fae86e506a6.gif" align="center"></a>
 </p>
 <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/ezgif-6f793e0d64378f%20(2).gif" align="center" width="74%"></a>
-<img src="https://file.garden/Z7-3jqElunno9Cjt/ezgif-8087b7ae2d71de.gif" align="right" width="55%"></a>
+<img src="https://file.garden/Z7-3jqElunno9Cjt/ezgif-8087b7ae2d71de.gif" align="right" width="45%"></a>
 <p align="center">
   <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=1197191624&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)>
  <p align="center">     
@@ -24,7 +24,6 @@
     <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"></a>
       <p align="center">  
     <a href="https://pseyechosis.atabook.org"> atabook</a> <a href="https://rentry.co/worstgore">rentry</a> <a href="https://rentry.co/foreverstained">directory</a> <a href="https://guns.lol/pseyechosis">guns.lol</a>
-        <br>  
-        <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-72b5-gradientmap.pro.png" align="center" width="40%"></a>
+
  <br>  
 <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-ad09-gradientmap.pro2.png"/>
