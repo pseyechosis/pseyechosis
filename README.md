@@ -10,18 +10,18 @@
  ${\textsf{\color{#f40179}I am pseyechosis on most socials.}}$ <br>
    ${\textsf{\color{#f40179} if you can't find me, then I don't have it!}}$ <br>
    ${\textsf{\color{#f40179}my github is solely for pt. I have no coding prowess}}$ <br></p>
-   <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"></a>
+   <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png" align="center" width="20%"></a>
     <p align="center">  
    ${\textsf{\color{#f40179}doctrine or vincent ₊ he / it / hym}}$ <br>
    <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_6209.gif"></a>${\textsf{\color{#f40179}i am 18!! please be aware }}$ <br>
    ${\textsf{\color{#f40179}i hang around ponytown but im too shy to int... }}$ <br>
    ${\textsf{\color{#f40179}but c+h is always welcome and im fine w ships ! }}$ <br></p>
-  <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"></a>
+  <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png" align="center" width="20%"></a>
     <p align="center">  
    ${\textsf{\color{#f40179}feel free to friend me or wtv. but i might be unpleasant}}$ <br>
    ${\textsf{\color{#f40179}no dni except if we're more than 2 years apart in age. sorry}}$ <br>
    ${\textsf{\color{#f40179}talk to me about roblox forsaken}}$<img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/pink/e43c2ad1.gif"></a> ${\textsf{\color{#f40179}specifically ichance,...}}$<br></p>
-    <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"></a>
+    <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"  align="center" width="20%"></a>
       <p align="center">  
     <a href="https://pseyechosis.atabook.org"> atabook</a> <a href="https://rentry.co/worstgore">rentry</a> <a href="https://rentry.co/foreverstained">directory</a> <a href="https://guns.lol/pseyechosis">guns.lol</a>
 
