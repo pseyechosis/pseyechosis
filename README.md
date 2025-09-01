@@ -20,7 +20,9 @@
     <p align="center">  
    ${\textsf{\color{#f40179}feel free to friend me or wtv. but i might be unpleasant}}$ <br>
    ${\textsf{\color{#f40179}no dni except if we're more than 2 years apart in age. sorry}}$ <br>
-   ${\textsf{\color{#f40179}talk to me about roblox forsaken}}$<img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/pink/e43c2ad1.gif"></a> ${\textsf{\color{#f40179}specifically ichance,...}}$<br></p>
+   ${\textsf{\color{#f40179}talk to me about roblox forsaken}}$<img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/pink/e43c2ad1.gif"></a> ${\textsf{\color{#f40179}specifically ichance,...}}$<br>
+      ${\textsf{\color{#f40179}chance horses come sit w me when im itrapped horse i beg}}$
+   </p>
     <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"  align="center" width="20%"></a>
       <p align="center">  
     <a href="https://pseyechosis.atabook.org"> atabook</a> <a href="https://rentry.co/worstgore">rentry</a> <a href="https://rentry.co/foreverstained">directory</a> <a href="https://guns.lol/pseyechosis">guns.lol</a>
