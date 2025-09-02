@@ -25,7 +25,7 @@
    </p>
     <p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/image-4c98-gradientmap.pro.png"  align="center" width="20%"></a>
       <p align="center">  
-    <a href="https://pseyechosis.atabook.org"> atabook</a> <a href="https://rentry.co/worstgore">rentry</a> <a href="https://rentry.co/foreverstained">directory</a> <a href="https://guns.lol/pseyechosis">guns.lol</a>
+    <a href="https://pseyechosis.atabook.org"> atabook</a> <a href="https://rentry.co/worstgore">rentry</a> <a href="https://rentry.co/foreverstained">directory</a> <a href="https://guns.lol/pseyechosis">guns.lol</a> <a href="https://guns.lol/pseyechosis](https://pseyechosis.straw.page/)">strawpage</a>
 
 
   <br>  
